@@ -102,6 +102,6 @@ License
 
 Contact & Support
 
-# Email: photoartisto.ca@gmail.com# https://www.linkedin.com/in/yousef-samak/# Website: photoartisto.com
+# Email: photoartisto.ca@gmail.com# https://www.linkedin.com/in/yousef-samak/# Website: wwww.photoartisto.com
 
 # SEO Automation & Optimization Simplified! #
